@@ -16,7 +16,7 @@ I just got bored, yk, being a programmer feels like I lack the need to socialise
 
 I atleast am talking U_U, DUH
 
-if you are different a real Person, and Not Curry, himself, cuz he has dementia (jk)
+if you are really a real Person, and Not Curry, himself, cuz he has dementia (jk)
 
 and will forget that he wrote this U_U,
 
