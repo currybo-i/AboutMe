@@ -16,5 +16,11 @@ I just got bored, yk, being a programmer feels like I lack the need to socialise
 
 I atleast am talking U_U, DUH
 
+if you are different a real Person, and Not Curry, himself, cuz he has dementia (jk)
 
-you are a awesome sauce too, twin ❤
+and will forget that he wrote this U_U,
+
+You can just go to the issues to see if you wanna chat or smt?
+until then 
+
+you are a awesome sauce too, twin ❤ cya
